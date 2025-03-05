@@ -1,1 +1,1 @@
-bunu okuyosan 
+bunu okuyosan ,
